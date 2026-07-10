@@ -21,7 +21,8 @@
 + seildirectory/ihasafacelulz
 + phighting
 + animal hospital
-+ deltarune kind of..?? im not as interested in it as i was years ago nor do i know tons about it but i am a roaring knight yumeshipper so there's that. the roaring knight is very dear to me 
++ deltarune kind of..?? im not as interested in it as i was years ago nor do i know tons about it but i am a roaring knight yumeshipper so there's that. the roaring knight is very dear to me
++ there's more but these are my main ones as of late
 
 <p align="center">
   <img src="https://dividers.crd.co/assets/images/gallery10/1f2408b3.gif?v=05d33f91" alt="me">

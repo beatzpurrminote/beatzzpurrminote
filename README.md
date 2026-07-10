@@ -38,6 +38,8 @@
 + do not ask me for my discord or any of my socials. if we're close enough i will give them to you on my own. i have them i just like to keep them separate from here
 + do not copy my skins!
 + i am a darkshipper and spawnist so please just block if it makes you uncomfy i dont need theatrics. they waste both of our time
++ free C+H always AS LONG AS IM ALONE, just please dont cover me!!
++ i prefer to whisper because im offtab a lot
 
 ### DNI
 + under 13
